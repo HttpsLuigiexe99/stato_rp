@@ -1,2 +1,3 @@
 # stato_rp
-Setta la tua notifica
+DISCORD: https://discord.gg/n8mvtaPmFS 
+[+] Setta la tua notifica
